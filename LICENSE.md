@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft flip bot with advanced nft flip bot | take-profit + slippage-control. Featuring take-profit and slippage-control, it's the best choice for automated NFT
 
 
 
